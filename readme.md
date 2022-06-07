@@ -1,2 +1,0 @@
-# Makeichyk Jaroslav
-## CV 
